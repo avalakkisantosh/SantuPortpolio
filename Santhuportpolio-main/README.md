@@ -1,2 +1,0 @@
-# Santhuportpolio
-my Resume
